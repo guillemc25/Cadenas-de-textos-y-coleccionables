@@ -1,0 +1,1 @@
+# Cadenas-de-textos-y-coleccionables
